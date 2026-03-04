@@ -1,1 +1,0 @@
-# LaboratoryActivity_2
